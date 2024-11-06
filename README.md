@@ -41,5 +41,11 @@ Problem Solving: Strong analytical skills with a focus on algorithmic problem so
 Languages:
 
 English (Fluent)
+
 Telugu (Native)
+
+Kannada(Intermediate)
+
 Hindi (Intermediate)
+
+Japanese(By watching animes)
